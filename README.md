@@ -1,0 +1,2 @@
+# Sarifka-lacagaha-qalaad-
+ganacsi
